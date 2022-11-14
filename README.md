@@ -20,6 +20,6 @@ crear, es una web olvidada, seguro no tiene mucho potencial, pero es **¡Gratis!
     > actualizare luego si agrego más cosas que no son mias.
      **¡Spoiler!** no se escribir muy bien asi que, perdon si evito tildes, comas, o una palabra lleva alguna letra que no deberia tener
      
-    
+2. Luego subire alguna plantilla, cuando aprenda mas, ya existe una, pero esta muy desactulizada    
     
 > [Sitio Web](https://una000xd.blogspot.com) donde estoy haciendo las Pruebas 
